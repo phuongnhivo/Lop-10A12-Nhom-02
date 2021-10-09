@@ -3,4 +3,4 @@ Lưu Tố Nghi
 Võ Ngọc Phương Nhi
 Lưu Ngọc Minh
 Hồ Ánh Minh
-Đố Khánh Linh
+Đỗ Khánh Linh
